@@ -1,2 +1,0 @@
-# hokadv
-bild webside
